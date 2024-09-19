@@ -1,2 +1,4 @@
-# Farming Macro Mod 1.8.9 
-## Get Good Get Macro 
+# The biggest and most unique mod
+## https://www.youtube.com/watch?v=WNdArJO03ys
+
+## Huge amount of unique pokémon and more only here
